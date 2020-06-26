@@ -1,2 +1,0 @@
-# equilibriovital
-bla bla bla
